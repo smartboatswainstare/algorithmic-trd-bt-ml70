@@ -1,4 +1,4 @@
-# 
+# best perpetual trading bot plugins is the best perpetual trading bot plugins with liquidity-provision and trailing-stop. Safe, reliable, and optimized for CEX, DEX, and
 
 
 
